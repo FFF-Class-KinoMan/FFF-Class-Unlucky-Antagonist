@@ -2,7 +2,7 @@ Welcome to the world of FFF-Class Unlocky Antagonist, a fantasy book by Kino-Man
 
 >Plot:
 
-The origins of Jacques Dreux, the main antagonist of this universe, are narrated through his point-of-view, but not only. Starting from his years inside the most prestigious school of the Holy Rolandish Empire: the Miraval Academy.
+The origins of Jacques Dreux, the main antagonist of this universe, are narrated through his point-of-view. Starting from his years inside the most prestigious school of the Holy Rolandish Empire: the Miraval Academy.
 
 >Genre:
 
@@ -19,6 +19,8 @@ Since the main stage of the story is a school, some Teen-Drama is going to be pr
 >Author
 
 [REDACTED BY THE STASI]
+
+Mail: FFF-CLass_Kino-Man@proton.me
 
 >Book info
 
