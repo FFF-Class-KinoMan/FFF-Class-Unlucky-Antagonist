@@ -1,9 +1,11 @@
 Welcome to the world of FFF-Class Unlocky Antagonist, a fantasy book by Kino-Man.
 
 >Plot:
+
 The origins of Jacques Dreux, the main antagonist of this universe, are narrated through his point-of-view, but not only. Starting from his years inside the most prestigious school of the Holy Rolandish Empire: the Miraval Academy.
 
 >Genre:
+
 It's a mix of my favorite ones: Fantasy Worldbuilding, Korean webtoon/novel litRPG, and Mystery.
 
 1) Fantasy Worldbuilding: Dive in a full-fledged world that includes three continents populated by hundreds of nations with their own culture, language, and history.
